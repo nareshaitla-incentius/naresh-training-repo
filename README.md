@@ -1,1 +1,0 @@
-# naresh-training-repo
